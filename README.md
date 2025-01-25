@@ -1,0 +1,1 @@
+# Planilha-Inteligentes_IA
